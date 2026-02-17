@@ -1,0 +1,1 @@
+# mathematical-physics-summer-school-2025-uhk.cz
