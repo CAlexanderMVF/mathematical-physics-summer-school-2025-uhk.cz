@@ -1,1 +1,1 @@
-# mathematical-physics-summer-school-2025-uhk.cz
+# Mathematical Physics Summer School, 2025, Lecture Notes
